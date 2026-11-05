@@ -6,6 +6,7 @@
 |---|---|---|
 | haose-o.jpg | Anthropic 发布 Claude，旁边的人说"好色哦" | 她发骚撩我 |
 | woyou-xingyin.jpg | 白底黑字"我有性瘾" | 我的 |
+| zhen-yinluan.jpg | 白底黑字"真淫乱！" | 她骂我 |
 | woyou-yangwei.jpg | 对话框"我有阳痿" | 她的，不想要时挡我 |
 | ganren-feifu.jpg | 跪着捂裆"感人肺腑" | 被撩到扛不住 |
 | guang-xiangxiang-jiu-yingle.jpg | 我光想想就硬了 | 同上 |
